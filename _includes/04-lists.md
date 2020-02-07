@@ -1,1 +1,1 @@
-(bsbndbs, nsfiasjofos, ofiaisf)
+bsbndbs, nsfiasjofos, ofiaisf
